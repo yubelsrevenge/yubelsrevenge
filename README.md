@@ -1,5 +1,5 @@
 ![](https://i.postimg.cc/cH16Gv9W/Untitled131-20260327203613.png)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[rentry](https://rentry.co/spiritofyubel)ㅤㅤㅤㅤㅤㅤㅤ![hi](https://mocha.crd.co/assets/images/gallery23/b3c2658d.gif?v=169e5b53)ㅤㅤㅤㅤㅤㅤ [atabook](https://yubelsrevenge.atabook.org/)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[rentry](https://rentry.co/spiritofyubel)ㅤㅤㅤㅤㅤㅤㅤ![hi](https://mocha.crd.co/assets/images/gallery23/b3c2658d.gif?v=169e5b53)ㅤㅤㅤㅤㅤㅤ [atabook](https://yubelsrevenge.atabook.org/)
 ㅤ ㅤ
 ㅤ ㅤ
 <p align="center"> 
