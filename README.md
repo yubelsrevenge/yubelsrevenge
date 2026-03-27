@@ -2,5 +2,6 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[rentry](https://rentry.co/spiritofyubel)ㅤㅤㅤㅤㅤㅤㅤ![hi](https://mocha.crd.co/assets/images/gallery23/b3c2658d.gif?v=169e5b53)ㅤㅤㅤㅤㅤㅤ [atabook](https://yubelsrevenge.atabook.org/)
 ㅤ ㅤ
 ㅤ ㅤ
-
+<p align="center"> 
+  
 ㅤㅤㅤㅤㅤㅤㅤㅤ![](https://i.postimg.cc/CMkMrHL7/Untitled124-20260327203709.png)
