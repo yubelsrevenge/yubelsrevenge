@@ -4,4 +4,8 @@
 ㅤ ㅤ
 <p align="center"> 
   
-ㅤㅤㅤㅤㅤㅤㅤㅤ![](https://i.postimg.cc/CMkMrHL7/Untitled124-20260327203709.png)
+<div align="center">
+<img src="https://i.postimg.cc/CMkMrHL7/Untitled124-20260327203709.png" alt="Description" width="400">
+<p>.</p>
+</div>
+
