@@ -12,4 +12,7 @@
 <img src="https://i.postimg.cc/CMkMrHL7/Untitled124-20260327203709.png" alt="Description" width="400">
 <p>.</p>
 </div>
-
+ok hi im too lazy to make that rentry rn so 
+byi= i make mean jokes, im forgetful,
+dni= weird yumes, basic dni, obsessive and overly attached people
+i love yugioh, pokemon, godzilla, blue lock and shrimp
