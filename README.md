@@ -3,7 +3,7 @@
 <p>.</p>
 </div>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[rentry](https://rentry.co/spiritofyubel)ㅤㅤㅤㅤㅤㅤㅤ![hi](https://mocha.crd.co/assets/images/gallery23/b3c2658d.gif?v=169e5b53)ㅤㅤㅤㅤㅤㅤ [atabook](https://yubelsrevenge.atabook.org/)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[rentry](https://rentry.co/spiritshipping)ㅤㅤㅤㅤㅤㅤㅤ![hi](https://mocha.crd.co/assets/images/gallery23/b3c2658d.gif?v=169e5b53)ㅤㅤㅤㅤㅤㅤ [atabook](https://yubelsrevenge.atabook.org/)
 ㅤ ㅤ
 ㅤ ㅤ
 <p align="center"> 
