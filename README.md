@@ -1,5 +1,5 @@
 <div align="center">
-sign ata or this ↓ guy will be very sad
+sign ata or this ↓ guy will explode
 </div>
 
 ![](https://i.postimg.cc/N0Q1MBhw/judaichibi.png)
