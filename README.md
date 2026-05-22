@@ -6,6 +6,6 @@ sign my atabook or this ↓ guy will explode
 
 <div align="center">
   
-[re](https://rentry.co/spiritshipping)ntry & [at](https://yubelsrevenge.atabook.org/)a
+[re](https://rentry.co/yubel)ntry & [at](https://yubelsrevenge.atabook.org/)a
 
 </div>
