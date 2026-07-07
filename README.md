@@ -7,9 +7,10 @@ hee`#0969DA`
 
 <div align="center">
   
-[re](https://rentry.co/yubel)ntry & [at](https://yubelsrevenge.atabook.org/)a
+[re](https://rentry.co/haou)ntry & [at](https://yubelsrevenge.atabook.org/)a
 
 </div>
+
 
 ![](https://i.postimg.cc/tTmTX6bc/Screenshot-2026-06-16-175924.png)
 
