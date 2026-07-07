@@ -12,6 +12,3 @@ hee`#0969DA`
 </div>
 
 
-![](https://i.postimg.cc/tTmTX6bc/Screenshot-2026-06-16-175924.png)
-
-WHO ISTHIS TALKIGN ABOUT SOME DNC MY SKINS IN UR GITHUB HOE THATS MINE!!!! THOSE ARE MY COLOURS!!  U DIDNT EVEN COPY IT RIGHT [@chibiiwawa](https://github.com/chibiiwawa) [patreon](https://www.patreon.com/profile/creators?u=199442362) LOCK IN BRUH 
