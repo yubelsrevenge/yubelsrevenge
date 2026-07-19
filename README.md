@@ -2,7 +2,7 @@
   
 
 
-![](https://file.garden/ahGY17jemicv1Owd/Untitled154_20260707180422.png?v=1783449878982)
+
 this is gonna look really cool one day... when i figure out the code......
 
 <div align="center">
