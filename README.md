@@ -3,7 +3,7 @@
 
 
 
-this is gonna look really cool one day... when i figure out the code......
+this is gonna look really cool one day... when i figure out the code...... also if u colourpick my skins ur kinda lame sorry
 
 <div align="center">
   
