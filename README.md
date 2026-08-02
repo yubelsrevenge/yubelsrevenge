@@ -7,3 +7,4 @@
 
 
 all art creds on this readme go to cocaduel on twt check them out if u like ygo gx. LINKS DONT WORK YET IM WORKING ON IT IM WORKING ON IT > translates to im lazy and i wanna spend more time on terraria
+
