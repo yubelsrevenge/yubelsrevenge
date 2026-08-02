@@ -6,4 +6,4 @@
 |![https://yubelsrevenge.atabook.org/](https://file.garden/ahGY17jemicv1Owd/Untitled177_20260802164158_resized%20(1)%20(1)_resized_resized%20(1)_resized.png?v=1785682253408)  ![](https://file.garden/ahGY17jemicv1Owd/Untitled177_20260802164131_resized%20(3)_resized.png?v=1785682192521)![https://rentry.co/yubel](https://file.garden/ahGY17jemicv1Owd/Untitled177_20260802164112_resized%20(1)_resized.png?v=1785682300176) |  ![](https://file.garden/ahGY17jemicv1Owd/Untitled177_20260802162823_resized_resized.png?v=1785681362338)  |
 
 
-all art creds on this readme go to cocaduel on twt check them out if u like ygo gx. LINKS DONT WORK YET IM WORKING ON IT IM WORKING ON IT
+all art creds on this readme go to cocaduel on twt check them out if u like ygo gx. LINKS DONT WORK YET IM WORKING ON IT IM WORKING ON IT > translates to im lazy and i wanna spend more time on terraria
