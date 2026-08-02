@@ -7,3 +7,9 @@
 
 
 all art creds on this readme go to cocaduel on twt check them out if u like ygo gx. LINKS DONT WORK YET IM WORKING ON IT IM WORKING ON IT
+
+
+   <br>
+<a href="https://yubelsrevenge.atabook.org/">
+  <img src="https://file.garden/ahGY17jemicv1Owd/Untitled177_20260802164158_resized%20(1)%20(1)_resized_resized%20(1)_resized.png?v=1785682253408">
+</a>
